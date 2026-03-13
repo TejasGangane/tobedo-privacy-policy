@@ -70,5 +70,5 @@ We may update this privacy policy from time to time. When we do, we will update 
 
 If you have questions about this privacy policy or our data practices, contact us at:
 
-`your-email@example.com`
+`tejasgangane22@gmail.com`
 
